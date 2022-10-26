@@ -11,6 +11,11 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
+我没Q了，但我向来如此。晚饭时间到了，我从容的走到高处，转过身，对着西北，缓缓的张开了嘴。
+你看那昔日的北风，那便是我今日的三餐了，幸好今日多了些尘土，足以饱腹。
+
+我裤子后面有两个兜儿，一个是空的，另一个也是空的。大抵是我的口袋，清高了，世俗的铜臭味已经入不了他的世界，我到底是穷到极点了。
+
 <!--
 **lijiahao8898/lijiahao8898** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
